@@ -1,2 +1,2 @@
-# NAME:
+# NAME:Krittayoch Othavorn
 # STUDENT ID:
